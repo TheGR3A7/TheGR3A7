@@ -1,3 +1,3 @@
 - Hello, Buddy 👋!!!
 - Yo Soy Alex 🤙. 
-- I am TOP G 😎 from the Salamanca family 💀 and "Koko eating bananas" enjoyer 🍌.  
+- I am TOP G 😎 from the Salamanca family 💀 , "Koko eating bananas" enjoyer 🍌 and Envelope developer ✉️.
