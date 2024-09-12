@@ -1,3 +1,4 @@
 - Hello, Buddy 👋!!!
 - Yo Soy Alex 🤙. 
-- I am TOP G 😎 from the Salamanca family 💀 , "Koko eating bananas" enjoyer 🍌 and Envelope developer ✉️.
+- I am TOP G 😎 from the Salamanca family 💀 , "Koko eating bananas" enjoyer 🍌, Enviloup developer ✉️.
+- I am also Mamba Mentality Kobe Bryant 🐍 / Lebron James Prime Mode 👑.
